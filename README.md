@@ -2,7 +2,7 @@
 
 If you'd like an invite, drop me a line on [linkedin](https://www.linkedin.com/in/outragedpinkracoon/)
 
-List of Community Resources
+# List of Community Resources
 
 One to ones
 
